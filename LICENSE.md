@@ -1,4 +1,4 @@
-# 
+# Ultimato 499 AI/ML/DL Projects Collection predefinições. Com reconhecimento de voz e aumento de dados — otimizado para máximo desempenho.
 
 
 
